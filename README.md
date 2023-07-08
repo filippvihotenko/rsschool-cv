@@ -1,1 +1,1 @@
-# rsschool-cv
+https://filippvihotenko.github.io/rsschool-cv/
